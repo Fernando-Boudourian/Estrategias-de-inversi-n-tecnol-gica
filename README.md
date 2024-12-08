@@ -1,0 +1,1 @@
+# Estrategias-de-inversi-n-tecnol-gica
